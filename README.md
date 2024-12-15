@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Yug Patel
 - 👀 I’m a data professional with 3 years of experience
 - 🌱 I’m always learning 
-- 💞️ I’m looking to collaborate on data visualizations project right now
+- 💞️ I’m looking to collaborate on data visualization projects right now
 - 📫 Feel free to email me anytime - yugpatel211001@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: HUGE FAN OF ONE PIECE!!!!
